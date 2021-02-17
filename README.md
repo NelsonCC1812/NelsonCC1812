@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @NelsonCC1812
+- 👀 I’m interested in coding.
+- 🌱 I’m currently learning as much as i can.
+- 📫 How to reach me throught my linkedin, website, etc... [Website](nelsoncc.es)
